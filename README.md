@@ -1,0 +1,2 @@
+# Inspiration
+灵感
